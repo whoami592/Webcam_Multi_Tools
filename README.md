@@ -7,3 +7,5 @@ Observation This is a tool for education only, I am not responsible for any misu
 
 
 ![WhatsApp Image 2025-06-19 at 9 15 28 PM](https://github.com/user-attachments/assets/98a276b6-81da-4f1f-b34d-a308247b9895)
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=100&pause=1000&color=15390B&background=FFFEFC00&width=650&height=500&lines=M;R;S;A;B;A;Z;A;l;i;k;h;A;N" alt="Typing SVG" /></a>
